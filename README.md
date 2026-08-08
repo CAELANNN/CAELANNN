@@ -1,4 +1,4 @@
-## Hi there 👋
+## fuck coding . fuck it all .
 
 <!--
 **CAELANNN/CAELANNN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
