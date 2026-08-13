@@ -1,1 +1,1 @@
-## fuck coding . fuck it all .
+## i love rewrittensin..
